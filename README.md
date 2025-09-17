@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning Game Design at High Point University
 - 💞️ I’m looking to collaborate on any project I'm invited to. 
 - 📫 How to reach me: Send me a message or email me at seanwcaseytex@gmail.com
-- ⚡ Fun fact: I'll be better than you at any video game are after playing for 2 days.
+- ⚡ Fun fact: I'll be better than you at any video game you are after playing for 2 days.
